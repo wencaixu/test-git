@@ -1,4 +1,2 @@
 fdafa
 fajfdkla
-fdafa
-dfaf
